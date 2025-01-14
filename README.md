@@ -1,1 +1,1 @@
-Assignment of codding
+Assignment of coding
